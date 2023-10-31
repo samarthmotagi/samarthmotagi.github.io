@@ -1,1 +1,0 @@
-# samarthmotagi.github.io
